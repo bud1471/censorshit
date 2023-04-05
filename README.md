@@ -1,2 +1,0 @@
-# censorshit
-f school censorship
